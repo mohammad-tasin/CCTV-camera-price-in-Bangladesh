@@ -74,7 +74,7 @@ We provide professional installation services to ensure your CCTV system is set 
 
 ## 🛒 How to Order
 
-1. Browse our products on our store [CCTV Camera price in Bangladesh]([http://yourwebsite.com](https://bd.cctvshop.workers.dev/Security-Camera/cc-camera)).
+1. Browse our products on our store [CCTV Camera price in Bangladesh][http://yourwebsite.com](https://bd.cctvshop.workers.dev/Security-Camera/cc-camera).
 2. Contact us via phone or email to place your order.
 3. Schedule an installation appointment (if needed).
 
