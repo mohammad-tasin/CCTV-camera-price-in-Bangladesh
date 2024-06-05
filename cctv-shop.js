@@ -41,7 +41,7 @@ addEventListener('fetch', event => {
   }
   
   async function fetchPosts() {
-    const postsUrl = 'https://bd.cctvshop.workers.dev/Security-Camera/cc-camera'
+    const postsUrl = 'https://bd.cctvshop.workers.dev/'
     const postsResponse = await fetch(postsUrl)
   
     if (!postsResponse.ok) {
