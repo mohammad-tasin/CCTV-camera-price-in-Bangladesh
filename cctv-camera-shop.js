@@ -41,7 +41,7 @@ addEventListener('fetch', event => {
   }
   
   async function fetchPosts() {
-    const postsUrl = 'https://bd.cctvshop.workers.dev/'
+    const postsUrl = 'https://cctvcamerabd.github.io/CCTV-camera-price-in-Bangladesh/cctv-camera-shop'
     const postsResponse = await fetch(postsUrl)
   
     if (!postsResponse.ok) {
