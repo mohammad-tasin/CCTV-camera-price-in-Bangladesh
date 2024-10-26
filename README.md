@@ -55,12 +55,7 @@ We offer a variety of CCTV cameras, including:
 
 > **Note**: Prices are subject to change. For the latest prices, please contact us.
 
-# Dahua | Jovision | HikVision | IP | WiFi | PTZ | CC Camera Packages Price in Bangladesh
-
-## Overview
-Explore a range of Dahua CCTV camera packages offered at CCTV Shop Bangladesh, featuring competitive prices, professional installation, and after-sales support for various security needs.
-
-## Dahua Packages
+## Dahua | Jovision | HikVision | IP | WiFi | PTZ | CC Camera Packages Price in Bangladesh
 
 ### Dahua 2 Unit CC Camera Package
 - **Save:** ৫০০৳
