@@ -51,6 +51,87 @@ We offer a variety of CCTV cameras, including:
 
 > **Note**: Prices are subject to change. For the latest prices, please contact us.
 
+# Dahua | Jovision | HikVision | IP | WiFi | PTZ | CC Camera Packages Price in Bangladesh
+
+## Overview
+Explore a range of Dahua CCTV camera packages offered at CCTV Shop Bangladesh, featuring competitive prices, professional installation, and after-sales support for various security needs.
+
+## Dahua Packages
+
+### Dahua 2 Unit CC Camera Package
+- **Save:** ৫০০৳
+- ![Dahua 2 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-228x228.jpg)
+- **Details:**
+  - ২ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ৪ চ্যানেল XVR
+  - ১০০০জিবি হার্ড ড্রাইভ
+- **Price:** ১২,৫০০৳ (Original: ১৩,০০০৳)
+
+### Dahua 3 Unit CC Camera Package
+- **Save:** ৪০০৳
+- ![Dahua 3 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-3-228x228.jpg)
+- **Details:**
+  - ৩ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ৪ চ্যানেল XVR
+  - ১০০০জিবি হার্ড ড্রাইভ
+- **Price:** ১৫,১০০৳ (Original: ১৫,৫০০৳)
+
+### Dahua 4 Unit CC Camera Package
+- **Save:** ৭০০৳
+- ![Dahua 4 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-4-228x228.jpg)
+- **Details:**
+  - ৪ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ৪ চ্যানেল XVR
+  - ১০০০জিবি হার্ড ড্রাইভ
+- **Price:** ১৭,৩০০৳ (Original: ১৮,০০০৳)
+
+### Dahua 5 Unit CC Camera Package
+- **Save:** ৮০০৳
+- ![Dahua 5 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-5-228x228.jpg)
+- **Details:**
+  - ৫ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ৮ চ্যানেল XVR
+  - ১০০০জিবি হার্ড ড্রাইভ
+- **Price:** ২০,৭০০৳ (Original: ২১,৫০০৳)
+
+### Dahua 6 Unit CC Camera Package
+- **Save:** ৮০০৳
+- ![Dahua 6 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-8-500x500-228x228.jpg)
+- **Details:**
+  - ৬ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ৮ চ্যানেল XVR
+  - ১০০০জিবি হার্ড ড্রাইভ
+- **Price:** ২৩,২০০৳ (Original: ২৪,০০০৳)
+
+### Dahua 8 Unit CC Camera Package
+- **Save:** ১,০০০৳
+- ![Dahua 8 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-8-228x228.jpg)
+- **Details:**
+  - ৮ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ৮ চ্যানেল XVR
+  - ১০০০জিবি হার্ড ড্রাইভ
+- **Price:** ২৮,০০০৳ (Original: ২৯,০০০৳)
+
+### Dahua 16 Unit CC Camera Package
+- **Save:** ৩,৫০০৳
+- ![Dahua 16 unit CC camera package](https://dahua.pages.dev/Dahua%20CC%20Camera%20Package%20Price%20in%20Bangladesh%20-CCTVCameraBD_files/dh-hdw1000rp-6-228x228.jpg)
+- **Details:**
+  - ১৬ ইউনিট ১০৮০পি নাইট ভিশন সিকিউরিটি ক্যামেরা
+  - ১৬ চ্যানেল XVR
+  - ২০০০জিবি হার্ড ড্রাইভ
+- **Price:** ৪৭,০০০৳ (Original: ৫০,৫০০৳)
+
+
+## Purchase CC Camera Packages with Exciting Deals at Best Price in Bangladesh
+We have designed different packages consisting brand new CCTV cameras, DVR, NVR or XVR, storage device and relative accessories required to build a security system. Considering the cameras, we have used Dahua digital &amp; IP cameras with 720P &amp; 1080P resolution and night vision facility. Quality recording device along with surveillance storage drives of huge capacity will be ensured depending on your requirement. Quality adapter, connector and Cat6 cables will be provided to complete the setup.
+### Utmost Necessity
+Depending on the area you need to cover the package size will differ. These high-quality packages will enable close observation from a distance for monitoring behavior, activities of personnel to manage, control or protecting them. This monitoring is highly required for Government organization for intelligence gathering, prevention of crime, protection of a process, person, group or object from unwanted event. This is also useful for any non-government or business organization to collect information to increase productivity and secure the premises.
+### Advantages of HD-CVI Packages
+CCTVCameraBD’s Dahua packages are designed with HD-CVI (High Definition Composite Video Interface) and IP cameras for your convenience. HD-CVI follows a new technology for transmitting uncompressed high-definition digital video for surveillance applications. This latest technology has successfully replaced other cameras as it has the advantage of licensed video transmitter and receiver that can transmit up to 1080p video resolution (1920 x 1080) in an uncompressed format over the same standard coaxial cable. Furthermore, this uncompressed video format is capable to transmit longer distance without creating than others. In addition, it requires only one coaxial cable to transmit video, audio and control them rather having separate cables for each.
+### IP Camera Packages
+This type of cameras in this package use internet to transmit data and it requires local area network with ethernet connection. This system will need central network video recorder (NVR) for storing and alarm management. These cameras can be accessed remotely from any location to monitor the actual event.&nbsp;</p>
+### Have Best CC camera Solution
+ Best CC cameras are used for the packages with expert engineers for the installation. Our support team can go around the country to provide the solution. Having a surveillance solution from us will reduce your daily hassle. Get a complete security solution with attractive offers at best market price.
 ## 🌟 Features
 
 Our CCTV cameras come with the following features:
